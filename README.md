@@ -21,3 +21,17 @@ thats the power of little things adding up.
 Rahul was a company CEO and was making 100 crore in sales annually , they were doing fine but the author detacted the lack of engagement between rahul and his employees as he stays with his management team only . Author suggested rahul to take a walk through his office and appreitaite those mind who are actually doing good at there works and this surprised the employee which lead to better results in company betterment . 
 
 As again the difference between the third player is not about that is 100 ot 1000 timmes faster than him it just he/ she is lil bit better than him
+
+# Chapter - 3(Habits)
+
+A teacher and his student were taking a walk through a forest, and the pupil looking at the a small tree and teacher asked him to pull that of and with fingers only he pulled up the whole plant within secconds, now teacher looked at another plant and asked him to pull that off and the student have that so well and pulled off that plant also and moving a little bit teacher pointed out a plant which was of his height but with all this body weight and full efforts he successfully pulled that also. Than after moving further teacher pointed out a full established tree whose top is barely visible and asked student to pull that off but after looking at the tree he replied i can’t, than the teacher toold student that’s how to power of habits work “ the older they arr the bigger they get, the deeper the roots grow and harder they are uprooted. Some get so big, with roots so deep, you might hesitate to even try.
+
+# Creatures of Habit
+
+We are what we repeatedly do .
+
+Here the author is basically asking as to take control of our life, which can be done by taking control at out habits which obviously don’t come when we are born, they come up after learning and doing that everyday.
+
+## Start by thinking your way out of the Instant Gratification Trap
+
+If the bad habits we are following today, give us instant result we would not dare to do that thing again like smoking a cigratee will turn you 80 just after you smoke,  or if you failed to make 10 calls today you will be immediately fired and that’s the reason we took things to lightly and don’t work on them as much they needed to be done…..
