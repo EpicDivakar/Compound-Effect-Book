@@ -35,3 +35,13 @@ Here the author is basically asking as to take control of our life, which can be
 ## Start by thinking your way out of the Instant Gratification Trap
 
 If the bad habits we are following today, give us instant result we would not dare to do that thing again like smoking a cigratee will turn you 80 just after you smoke,  or if you failed to make 10 calls today you will be immediately fired and that’s the reason we took things to lightly and don’t work on them as much they needed to be done…..
+
+## Finding Your Mojo - Your Why - Power
+
+Let’s say a person is dedicating a huge amount of time dedication to acheive something for himself/herself but there’s always a reason which kept them going either money , family happiness , or may be it can be there dream thing or anything but there must be a solid reason to go throw the struggle phase or you can say hardwork phase and which keeps you going. 
+
+What’s your reason of keep going
+
+## Why Everything is Possible
+
+If your why isn’t greater than everything than you’ll end up like every other person who amkes a New Year Resolution and gives up too quickly . The fire of doing things depends on the situation , would you walk on a bed from point A to B for 20 bucks , would you ? offcourse yess without any doubt . What if i ask you to walk on a stick from a point of building to another building . Obviously not and if the situation change the building is on fire and your child is on another side you’ll run after it without even thinking
