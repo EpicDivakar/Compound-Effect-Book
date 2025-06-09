@@ -87,3 +87,5 @@ Here are the Key take away from this chapters till date.
 "Momentum works on both sides of the equation. It can work for you or against you."
 
 "Your past doesn’t determine your future—your decisions do."
+
+A teacher and his student were taking a walk through a forest, and the pupil looking at the a small tree and teacher asked him to pull that of and with fingers only he pulled up the whole plant within secconds, now teacher looked at another plant and asked him to pull that off and the student have that so well and pulled off that plant also and moving a little bit teacher pointed out a plant which was of his height but with all this body weight and full efforts he successfully pulled that also. Than after moving further teacher pointed out a full established tree whose top is barely visible and asked student to pull that off but after looking at the tree he replied i can’t, than the teacher toold student that’s how to power of habits work “ the older they arr the bigger they get, the deeper the roots grow and harder they are uprooted. Some get so big, with roots so deep, you might hesitate to even try.
