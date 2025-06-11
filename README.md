@@ -46,46 +46,16 @@ What’s your reason of keep going
 
 If your why isn’t greater than everything than you’ll end up like every other person who amkes a New Year Resolution and gives up too quickly . The fire of doing things depends on the situation , would you walk on a bed from point A to B for 20 bucks , would you ? offcourse yess without any doubt . What if i ask you to walk on a stick from a point of building to another building . Obviously not and if the situation change the building is on fire and your child is on another side you’ll run after it without even thinking
 
-Here are the Key take away from this chapters till date.
+ Chapter - Success is a Half marathon
 
-"Small, smart choices + consistency + time = radical difference."
+ where a lady want to improve in life by loosing hher weight and what author suggested to him was nothing surprising it were simple steps like acting upo daily and improve day by day and it would act as a ripple effect for his life and it helped her alot . 
+Your life is the product of your moment-to-moment choices.
 
-"You will never change your life until you change something you do daily."
+How Goal setting Actually works : The mystery 'Secret Revealed
 
-"It’s the small things that nobody sees that result in the big things everybody wants."
+-when you define your goal , you are give your brain something new to look for or focus on . It's as if you're giving your mind a new set of eyes from which to see all the people , circumstances , conversation , resources , ideas , and creativity , surrounding you.\
+- Top People have verty clear goals . They know who they are and they knwo what they want. They write it down nand makes plan for it's accomplishment.
 
-"Success is earned in the moment-to-moment decisions."
+  Who You Have to Become.
 
-"You alone are responsible for what you do, don’t do, or how you respond to what’s done to you."
-
-"Consistency is the key to achieving and maintaining momentum."
-
-"You cannot improve something until you measure it."
-
-"Your choices are only meaningful when you connect them to your desires and dreams."
-
-"The most challenging part of the compound effect is that we have to keep working away for a while, consistently and efficiently, before we begin to see the payoff."
-
-"Choices are at the root of every one of your results."
-
-"You make your choices, and then your choices make you."
-
-"Don’t wish it were easier; wish you were better."
-
-"Eliminating bad habits is just as important as creating good ones."
-
-"The only thing standing between you and your goal is the story you keep telling yourself."
-
-"The Compound Effect is always working—for you or against you."
-
-"The slightest adjustments to your daily routines can dramatically alter the outcomes in your life."
-
-"It’s not the big things that add up to the difference between success and failure. It’s the hundreds, thousands, or millions of little things that separate the ordinary from the extraordinary."
-
-"If you want to be great at something, there’s no magic—just hard work and discipline over time."
-
-"Momentum works on both sides of the equation. It can work for you or against you."
-
-"Your past doesn’t determine your future—your decisions do."
-
-A teacher and his student were taking a walk through a forest, and the pupil looking at the a small tree and teacher asked him to pull that of and with fingers only he pulled up the whole plant within secconds, now teacher looked at another plant and asked him to pull that off and the student have that so well and pulled off that plant also and moving a little bit teacher pointed out a plant which was of his height but with all this body weight and full efforts he successfully pulled that also. Than after moving further teacher pointed out a full established tree whose top is barely visible and asked student to pull that off but after looking at the tree he replied i can’t, than the teacher toold student that’s how to power of habits work “ the older they arr the bigger they get, the deeper the roots grow and harder they are uprooted. Some get so big, with roots so deep, you might hesitate to even try.
+  - If you want to have more , you have to become more 
