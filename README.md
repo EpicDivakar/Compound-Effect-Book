@@ -1,4 +1,4 @@
-# Compound-Effect-Book
+ # Compound-Effect-Book
 (Lesson Money Trap)
 Earning and alot of money and not saving the tax portion from the that is a type of trap in which the writter intially fell, now he need to earn more and can’t spent that in as expenses as he need to pay a huge amount of tax and by not saving money for the tax he is digging a grave for himself.
 
@@ -58,4 +58,19 @@ How Goal setting Actually works : The mystery 'Secret Revealed
 
   Who You Have to Become.
 
-  - If you want to have more , you have to become more 
+  - If you want to have more , you have to become more
+ 
+  (Behave Yourself)
+
+What stands between you and your goal is your behaviour . SO what are the behaviour nand habits we need to subtrtact from and add to our life.
+The thing is we don't even know where we our spending our day as , we don't a proper track of things we are actually doing throughout a day and that's the reason we spend most of our time on random thing which don't event related to our goal.
+What you can do is Write down you three Goals and 3 Bad habits which is pushing you backwords.
+
+
+-Game Changer : FIVE Strategies for Eliminating Bad habits.
+.Identify your trigger 
+. Clean House : Remove those things which is a part of your bad habit.
+.Swap it : Replace them with good habits .
+. Ease In: Don't directly cut off your bad haibts , cut of them slowly ,
+
+  
